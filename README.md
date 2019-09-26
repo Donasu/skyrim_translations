@@ -26,4 +26,4 @@ Basically, All mods are based on Skyeim SE ver.
 
 **Adult Mod Lists**
 1. Devious Followers: https://drive.google.com/open?id=1hY6zXRymb880khKZOZs4RyNCpHY6egnd
-2. Skxlab Beastess SSE: https://drive.google.com/open?id=1Eg8ZOlnktNIWkd39OSRX4h9Wag773OqY
+2. Sexlab Beastess SSE: https://drive.google.com/open?id=1Eg8ZOlnktNIWkd39OSRX4h9Wag773OqY
